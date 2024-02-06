@@ -1,0 +1,1 @@
+We unfortunately were having issues with this drive before the tournament, and thought they were fixed by the time matches started. Turns out no replays saved on this setup. We'll be working to fix this for next week. Sorry!
